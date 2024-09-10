@@ -1,0 +1,1 @@
+Meu nome é Maria Eduarda, eu tenho 15 anos e gosto muito de tecnologia e de arte em geral, seja desenho, pintura, cinema, fotografia e etc. Meu sonho trabalhar em qualquer uma das áreas, se possível, até nas duas. Essas sacoisas que me interesso bastante e fazem parte da minha vida.
